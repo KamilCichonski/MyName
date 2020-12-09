@@ -1,1 +1,1 @@
-Kamil Cichonski
+Kamil J. Cichonski
